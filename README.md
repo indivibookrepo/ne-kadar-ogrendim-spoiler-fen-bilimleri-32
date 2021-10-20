@@ -1,0 +1,1 @@
+# ne-kadar-ogrendim-spoiler-fen-bilimleri-32
